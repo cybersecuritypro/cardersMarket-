@@ -4,7 +4,7 @@ you can get free cc information from hear
 ## do not try carding
 
 ### iam not ensuring the CC are alive or have balance...if your luck you will get your benefit
-![cb](https://user-images.githubusercontent.com/56509491/67160191-c2fe3280-f36b-11e9-9caf-b1947b9c1bda.JPG)
+![cb](blob:https://mail.protonmail.com/288da5a6-e4ad-41c5-afa9-15bd6a761c7b)
 
 # installation
 
@@ -21,4 +21,4 @@ bash Card.sh
 #### Instagram :- arz_beats
 
 
-![ur](https://user-images.githubusercontent.com/56509491/66862492-9e423d80-efae-11e9-8b2f-004d5381297a.png)
+![ur](blob:https://mail.protonmail.com/288da5a6-e4ad-41c5-afa9-15bd6a761c7b)
